@@ -1,4 +1,4 @@
-# 
+# Ligero cross-margin trading bot preajustes para Mac OS | Automático cross-margin trading bot preajustes para PC Windows. Con análisis de datos y conectividad Web3 — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
